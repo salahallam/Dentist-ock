@@ -1,0 +1,1 @@
+الصور المرسلة تم وضعها هنا: clinic-hero.jpg (صورة العيادة)، doctor.jpg (صورة الطبيب)، clinic-logo.jpg (الشعار).\n
